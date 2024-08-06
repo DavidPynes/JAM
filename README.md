@@ -9,3 +9,12 @@ https://www.youtube.com/watch?v=oOhknvYJibs&ab_channel=Drake-Topic
 https://www.youtube.com/watch?v=1tgWfqk-2DI&ab_channel=HomeGrown-Topic
 
 https://www.youtube.com/watch?v=ce2KN06dS7c&ab_channel=P.O.D.Videos
+
+08/03/2024 - Abbey made it to California with me. She's sick which was expected. She's sneezing blood, but recovering.
+08/04/2024 - California west coast ipa - malty + hop - refreshing & strong
+08/05/2024 - Purchased new Car with cash - thanks to derivatives and the markets.
+08/06/2024 - Woke up early and surfed Cherry Street - 1st time - best break in town - very territorial - there was a fight in the water - sealion swam under my surfboard - scary.
+
+https://www.youtube.com/watch?v=nMpxb-PsEss
+
+

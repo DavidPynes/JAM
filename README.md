@@ -25,4 +25,7 @@ https://www.youtube.com/watch?v=IWRXdEd56Vw&ab_channel=RodMusic
 
 https://www.youtube.com/watch?v=SqWvkCTyCe0
 
-08/07/2024 - Remastered this https://www.youtube.com/watch?v=nAvWvbMyP2s
+08/07/2024 - Remastered Without You...
+https://www.youtube.com/watch?v=nAvWvbMyP2s
+
+08/08/2024- a pod of dolphins swam by while surfing, ran a 10k, and fetched Parabola, which is the most decadent aperitif I've had. Although different than a costly pinot from Napier - Parabola has a far more complex profile. Made another five thousand.

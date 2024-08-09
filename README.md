@@ -30,4 +30,13 @@ https://www.youtube.com/watch?v=nAvWvbMyP2s
 
 08/08/2024- a pod of dolphins swam by while surfing, ran a 10k, and fetched Parabola, which is the most decadent aperitif I've had. Although different than a costly pinot from Napier - Parabola has a far more complex profile. Made another five thousand.
 
+08/09/2024 - Long day getting life back in order - So decided to do a sunrise run along PCH. Mellow glassy waves crashed into the shoreline. Made it to Terra Mar where there were small but surfable crumbling waves. 
+https://www.youtube.com/watch?v=rXHfIHkPMSA
+
+Tell me what you thought about when you were gone and so alone
+The worst is over
+You can have the best of me
+We got older, but we're still young
+We never grew out of this feeling that we won't give up
+
 https://www.youtube.com/watch?v=tRL7Y1HRPb8

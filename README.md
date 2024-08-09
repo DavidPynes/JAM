@@ -37,8 +37,12 @@ https://www.youtube.com/watch?v=tRL7Y1HRPb8
 Put this song on, and I thought about you...I wonder if you get it too...
 
 "Tell me what you thought about when you were gone and so alone
+
 The worst is over
+
 You can have the best of me
+
 We got older, but we're still young
+
 We never grew out of this feeling that we won't give up"
 
